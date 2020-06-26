@@ -12,6 +12,10 @@ Walter Bruce Willis (* 19. März 1955 in Idar-Oberstein, Deutschland) ist ein US
 
 * Nach Abschluss der High School nahm er Schauspielunterricht am Montclair State College. Um diesen finanzieren zu können, arbeitete er nebenher in einer Chemiefabrik. 
 
+## Zitat
 
+Berühmtes Zitat aus der Action-Reihe "Stirb Langsam"
+
+> Yippie-ya-yay, Schweinebacke!
 
 
